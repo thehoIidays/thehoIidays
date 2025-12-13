@@ -1,16 +1,13 @@
-## Hi there 👋
-
-<!--
-**bigshotautos/bigshotautos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+Marv⠀⠀,⠀⠀Spam⠀⠀★⠀⠀any⠀,⠀she
+<p align="center">
+  int⠀⠀freely⠀⠀/⠀⠀w2i⠀⠀with⠀⠀friend(s)
+  
+<p align="center">
+<img src="https://i.ibb.co/k2Jj0jt2/Untitled466-20251213153900.png">
+<p align="center">
+  ★
+<p align="center">
+I don't, wanna, be, another, lover, in the ditch! </p>
+<p align="center">
+I just gotta, have ya, in a metaphorical sense! </p>
